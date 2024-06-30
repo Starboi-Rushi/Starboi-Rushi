@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Starboi-Rushi
 - 👀 I’m interested Data Science Field
-- 🌱 I’m currently learning MBA in Business Analytics and Data Science
+- 🌱 MBA in Business Analytics and Data Science
 - 📫 How to reach me bhamarerushi200@gmail.com
 - 😇THANK YOU 🫶✨ 
 
